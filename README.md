@@ -23,7 +23,7 @@ Study groups with fellow classmates Dustin, Tatiana, and Miggy also came in clut
 
 Professor Irfan is also to thank as always for his patience and guidance.
 
-Coding Sountrack for this week was Killswitch Engage's [End of Heartache](https://www.youtube.com/watch?v=LhLxCw4OFes&list=PLN18IemGQLuUD7x8YJdU38Tq8a94TLWDs).
+Coding Soundtrack for this week was Killswitch Engage's album, [End of Heartache](https://www.youtube.com/watch?v=LhLxCw4OFes&list=PLN18IemGQLuUD7x8YJdU38Tq8a94TLWDs).
 
 
 *-LM95A1*
